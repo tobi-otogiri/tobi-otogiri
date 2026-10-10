@@ -3,5 +3,7 @@
 <div align="center">⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ </div>
 
 <p align="center">
- cam or fuchi ㅤㅤ ♡ heㅤ</br>
- 17.yoㅤ08/26ㅤㅤor it ㅤ
+ ㅤcam or fuchi ㅤㅤ ♡ heㅤ</br>
+ ㅤ 17.yoㅤ08/26ㅤㅤor it ㅤ</br>
+ </br>
+ ㅤtobi yume ㅤ fuchi kinㅤ
